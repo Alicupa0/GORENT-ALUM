@@ -1,1 +1,0 @@
-# GORENT-ALUM
